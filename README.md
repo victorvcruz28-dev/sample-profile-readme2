@@ -1,4 +1,4 @@
-## 👏 Hi, I'm Victor Cryz
+## 👏 Hi, I'm Victor Cruz
 ##  About Me
 I like to draw and run and solve problems.
 ## 🎉 Interests
