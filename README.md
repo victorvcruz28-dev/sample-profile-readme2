@@ -1,6 +1,6 @@
-## 👏 Hi, I'm *your name here*
+## 👏 Hi, I'm Victor Cryz
 ##  About Me
-_Share some information about yourself, including your class, major, jobs, and extra-curriculars._
+I like to draw and run and solve problems.
 ## 🎉 Interests
 ![ROTC](https://www.afrotc.com/)
 ## 🔗 Links
